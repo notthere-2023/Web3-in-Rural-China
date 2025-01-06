@@ -1,0 +1,2 @@
+1. Uncommons社区有一个“加密人文研究”系列，我记得是由方庭主持的，里面有一个[“研究者书房”](https://uncommons.notion.site/65c359a03b364d949cd5638c595d3ac5)项目。uncommons社区的[公众号](https://mp.weixin.qq.com/s/vWH2SDhKi2ozT0KQVeqbaw)。
+2. 同样来自Uncommons社区，Kay曾经发起过一个Raw School（生肉学校）的“项目（？）”，里面有一个图书馆和研究者俱乐部。链接[在此](https://uncommons.notion.site/Library-Researcher-Club-53fa9a1d564746a3a70a3c80ae78f917)。
